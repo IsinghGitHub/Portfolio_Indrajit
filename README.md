@@ -1,4 +1,5 @@
 # ### About Me
+<img src='https://github.com/IsinghGitHub/Portfolio_Indrajit/blob/master/Me.JPG' width="450" heigth="250">
 
 - Hi Everyone! My name is **Indrajit Singh** and I am a **Senior Software Engineer** and AI Researcher at CellStrat. I love to explore new technologies, learn them and help others learn.
 
