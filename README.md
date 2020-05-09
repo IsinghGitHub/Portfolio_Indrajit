@@ -5,7 +5,7 @@
 
 # Does it sound daring? Let's connect and be "[[A Giver](https://www.linkedin.com/in/indrajitsinghds/ "A Giver")]"
 
-> I believe in the focus and the energy that drives us to do greater things is our intention and love towards that job. Instead of just applying for a job randomly I keep my faith in creating interest and attention towards the service that I am doing or going to do.
+> I believe in the focus and the energy that drives me to do greater things is my intention and love towards any task. Instead of just applying for a job randomly I keep my faith in creating interest and attention towards the task that I am doing or going to do.
 
 We As A Human Grow Up Fantasizing About Being Rich, Having A Great Job, Get A Beautiful Spouse And A Happy And Fulfilling Life. We Want To Be The Hero, We Want To Help Mankind And Save The World. The Ultimate Truth Is Most Of Us Never Discover The Lion And Remain Sleeping Forever Like A Camel Until Death.
 **Read My Latest Article On Linkedin:** [How I Discovered The Lion In Me](https://www.linkedin.com/pulse/how-i-discovered-lion-me-indrajit-singh/ "How I discovered the Lion in Me")
